@@ -1,1 +1,0 @@
-# swastya-setu-hackathon
